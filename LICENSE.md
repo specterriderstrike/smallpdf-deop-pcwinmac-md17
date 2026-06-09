@@ -1,4 +1,4 @@
-# 
+# Gratuito Smallpdf Desktop flujo de trabajo para Mac OS | Profesional Smallpdf Desktop flujo de trabajo para PC Windows. Con conciliación bancaria y flujos de trabajo personalizados — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
